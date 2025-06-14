@@ -44,3 +44,8 @@ This archive helps me:
 
 - GitHub: [https://github.com/ff7hpp](https://github.com/ff7hpp)
 - LinkedIn: [Abdulrahman Ahmed](https://www.linkedin.com/in/abdulrahmanabdullahh/)
+
+
+🔄 Updated weekly — this is a living archive.
+
+
